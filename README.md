@@ -1,4 +1,3 @@
-### Hi there 👋
 ### Hi there, I'm Nkechi! I'm transitioning into health tech. 👋
 
 - 🔭 I’m currently working on medical calculator projects.
