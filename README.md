@@ -1,4 +1,3 @@
-[README.md](https://github.com/namadi95/namadi95/files/8143104/README.md)
 ### Hi there 👋
 
 <!--
