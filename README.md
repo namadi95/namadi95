@@ -7,7 +7,7 @@
 - 💬 Ask me about Health Tech, Digital Health, and Health Product Design!
 - 📫 How to reach me: namadi95@gmail.com
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: I'm a PharmD and Master's in Public Health Student!
+- ⚡ Fun fact: Binge watching tv shows is my forté!
 
 Let's Connect:
 
