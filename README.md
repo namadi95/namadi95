@@ -9,7 +9,7 @@
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: Binge watching tv shows is my forté!
 
-Let's Connect:
+Let's Connect!
 
 <!--
 **namadi95/namadi95** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
